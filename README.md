@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hakkımda:
 💻 Computer Programmer<br>
 
 
